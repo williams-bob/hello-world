@@ -9,4 +9,4 @@ My true power is not my many gifts from God. Rather it is my recognition that th
 I need him more than anything else!
 
 
-
+Which is also why daily devotionals are important.
